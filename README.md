@@ -38,4 +38,4 @@ Además del enfoque en marketing analytics, tengo un fuerte interés en el merca
 ## Contacto
 
 - LinkedIn: https://www.linkedin.com/in/facundo-spellanzon  
-- Ubicación: Buenos Aires, Argentina
+- Correo: facundospellanzon@gmail.com
