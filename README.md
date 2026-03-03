@@ -37,5 +37,5 @@ Además del enfoque en marketing analytics, tengo un fuerte interés en el merca
 
 ## Contacto
 
-- LinkedIn: https://www.linkedin.com/in/facundo-spellanzon  
+- LinkedIn: https://www.linkedin.com/in/facundo-spellanzon-ba3666147/
 - Correo: facundospellanzon@gmail.com
